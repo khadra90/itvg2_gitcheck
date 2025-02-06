@@ -33,12 +33,16 @@ Bouthayna
 
 Patchi Bolt
 
-Khadra
-
 Elias
 
 Afia
 
 Aimad 😡😡😡😡😡
 
-karen
+Khadra
+
+Yasen
+
+Magnus Thor ¯\_(ツ)_/¯
+
+Karen
