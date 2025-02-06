@@ -44,3 +44,5 @@ Khadra
 Yasen
 
 Magnus Thor ¯\_(ツ)_/¯
+
+Karen
