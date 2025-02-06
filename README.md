@@ -36,3 +36,5 @@ Patchi Bolt
 Khadra
 
 Elias
+
+Magnus Thor ¯\_(ツ)_/¯
