@@ -49,6 +49,8 @@ Karen
 
 Suleyman
 
-samuel
-
 Sindre :D
+
+Samuel
+
+Yamahanty 😎🪽🌱🌈
